@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+<a href="https://imaginederm.com"> Visit Us here</a> <br>
+<a href="https://imaginederm.com/products/cellusolution-caffeine-shaping-cream-caffeine-guarana-niacinamide"> Our New Anti-Cellulite Cream Here</a> <br>
+<a href="https://imaginederm.com/products/prog-relief-bio-identical-usp-progesterone-3000mg-imagine-dermatology"> Out Best Selling Cream Here</a> <br>
+<a href="https://imaginederm.com/products/tepezcohuite-nourish-nectar"> This is a customer favorite</a> <br>
